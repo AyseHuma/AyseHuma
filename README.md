@@ -1,6 +1,6 @@
 # About me
  Bilkent CS Freshman
- Ayşe Hüma Şimşek
+ Hi! I'm Ayşe Hüma Şimşek.
 
  o(*￣▽￣*)ブ
 - How to reach me: aysehumasimsek999@gmail.com
