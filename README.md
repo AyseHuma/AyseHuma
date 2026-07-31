@@ -1,2 +1,2 @@
 # About me
- o(*￣▽￣*)ブ
+Second year CS at Bilkent University
